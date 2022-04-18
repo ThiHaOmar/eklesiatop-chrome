@@ -1,5 +1,5 @@
 # subscribe chanel youtube : Techry
-# link subscribe https://www.youtube.com/c/techryoff?sub_confirmation=1
+### link subscribe https://www.youtube.com/c/techryoff?sub_confirmation=1
 
 ### Option 1 (Easiest way 🚑- No sound) 
 
